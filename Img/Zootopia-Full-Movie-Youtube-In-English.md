@@ -1,0 +1,50 @@
+Even though you are right about Judy being in the right, I'm willing to be she doesn't feel the same way by the time the last panel come around and the only other person to truly believe in her walks out. Ya she wont have to give birth to a possible abomination, ya she'll get to keep doing her job but at what cost? She's likely never going to see Nick again, she's going to have to explain why he's not around anymore to her parents and her coworkers and possible catch a lot of flak from them, then word will likely reach the public about it and I'm sure the press would just love to ruin Judy's reputation as city hero, it's just all down hill from here as I see it.
+ 
+Because you have to talk smack about a fictional situation, about fictional characters, in a non-canon relationship. That and I believe she made a poor choice in saying her career was the most important reason for not wanting the child, she could have left it at being afraid of it being some sort of monster and maybe they could have worked it out but she didn't witch makes me think that Nick feels that he was nothing more then just a lay to her, that nothing he could ever give her would mean more to her the her career, and the their relationship was one sided! As a guy I can't say for any woman how scary it must feel to know there's another living being inside you, but if I loved someone as much as we all hope these to do, I would be willing to give up everything to stay with them.
+ 
+**Download === [https://sioburcietek.blogspot.com/?c=2A0SDO](https://sioburcietek.blogspot.com/?c=2A0SDO)**
+
+
+ 
+You are completely allowed to think that it is a bad comic, but if you do, don't just say "it is shit" talk about what you dislike about the comic and how it can improve, it makes for good conversation
+ 
+Actually Praxus, not having to bleed to death from giving birth to a baby that's too big for her IS worth losing an ahole BF who will judge her and call her a sinner for it. If the "cost" is having to say goodbye to someone who completely ignores your concerns and thinks you're a bad/selfish person for not wanting a kid and thinks he can dictate what you do with your own body, then that cost is acceptable.   
+Anyway, can't we just go back to these two being just friends instead of turning it into a stupid romantic drama? Why do they even need to be romantically involved? Why can't two people of the opposite gender just be friends for once?
+ 
+It's not "choosing a career over the only person that believed in you." She didn't leave nick, he left HER over the idea of a baby, and she chose her career over a dangerous pregnancy and BECOMING A MOTHER. The issue isn't that she loves work more than nick, it's that she loves work more than she wants to RAISE ANOTHER HUMAN LIFE.
+ 
+Sen the man, did you even read the comic? Judy is a Rabbit Nick is a Fox pregnancy should be impossible, never in history has 2 animals in conpletely different species have breeded before. So why would they??
+ 
+But they showed examples of different species (fox and wolf, moose and deer, pig n sheep) that clearly had babies???? the literal only difference is ones a prey animal and the others a predator animal if thats what you mean, n even then knowing different SPECIES were together shouldve been enough to be cautious
+
+That was trash, and if you think someone that really loved and cared for you would force you to choose your work or them then you never fully cared about them. This cartoon is an abomination. Way to demonize what is typically a hard and much more involved process. Also there is nothing wrong with someone simply not wanting to have a damn child.
+ 
+I do/don't respect the fact that she said my body my rules. Only because it's a selfish thought. But I can't say that I wouldn't say something like that if I was in that situation. In my opinion, it's pro life. I agree with nick. Give that child a chance at life. And if she doesn't love that child, I'm sure nick or someone else will. She will tear herself apart if she loses Nick. I guess what it boils down to is, what does she love more. Nick? Her Job? Herself? Or her child. The answer, is not for me to decide. So I will leave it at this for you guys to think. Just remember, no matter what someone chooses, you love them. You love them more than you love yourself. Trust me, if you show someone unconditional love, it will change their heart. Even if it takes years.
+ 
+I don't think anything was being forced. Nothing at all, beside the fact that she slapped him. Yes, she has the right to not have the child, but be also has the right to leave. Sure, it might seem like a dick move, and to some It's a dick move for Judy to not have the child. All in all, it's fake, and no one in the comic is wrong except for the assault.
+ 
+How the fuck is she in the right? She is killing their child! Abortion is a terrible thing to do unless you've been raped. End of story. If you don't want a child than take fucking precautions don't fucking kill a child because you made a "mistake" or a "bad choice". Pro choice people make me sick
+ 
+all judy did was say she didn't know if there would be pregnancy complications, expressed concern over having their child because it could possibly "be a freak", and then said she valued her job more than her child. she did not humor the idea of going to a professional, and attempting to see if it was even possible to carry the child to term before deciding on abortion
+ 
+all nick tried to do was save a life. maybe their relationship with the child would've lasted, maybe it still would've ended, maybe they could reconcile, maybe not. but the completely innocent third-party here, the child, would still have a chance at life regardless.
+ 
+you're right i don't think judy is the type of person to do that and not to spark conflict but i think that i'm taking nicks side even though the baby isn't born it's still a human being and it's like muder if judy was aborted then the whole zootopia land would still be in danger
+ 
+Even though this is a comic, doesn't mean that it doesn't happen often. He does not agree to murdering an unborn child. He had every right to walk out. She chooses her career over her family or giving the baby a chance to live. There are alot of people who have sucessful careers and have children.
+ 
+I regret seeing this comment. MY friend (who usually finds the weirdest stuff) sent me this. I thought "wtf" and clicked on this. Now that im scrolling down reading the comments, i see a comic titled "Judy is dead" being #1 on the sad chart or some s\*\*t. Now i gotta check it out. I have truly reached the deep and dark pit of psycho fandom.
+ 
+I have truly reached the Deep, Dark Pit of Psycho Fandom. My friend sent me a link to this comic, I decided ill check it out. I have fully regretted it. This comic has ruined such a great movie. You took the two main characters (who werent that bad) and just full on made them not so lovable. One wants an abortion and the other leaves just because. Now that I find out there's a comic that f\*\*ks with it even more, I (regretfully) must check it out because I honestly cant see anything worse than this. Thank you sir.
+ 
+Wow! I'm impressed that ZNN featured this! Not that it doesn't deserve the feature, but this comic has had the tendency to make people quite vehement in their opinions. I'm glad that possibility seems to have been embraced by ZNN, to be honest.
+ 
+Did I like the comic? No. No I did not. I've previously given a thorough critique on it regarding where I think it needs improvement. That said, I want to repost something I posted in the discussion on DeviantArt:
+ 
+To others: I hope you can find it within you to give Borba some credit, too. This whole thing has been very heated. (Granted, that may have been expected given the particular focus of the comic.) WildeHopps shipper or not, pro-life or pro-choice, I hope you can agree that we're all here to enjoy the Zootopia material in our own way. It's what makes us fans. Borba has enjoyed it in his own way, and there are plenty out there who actually liked the comic. You or I may not be in that group, but it doesn't mean we should all ruin each-other's enjoyment by fighting about it."
+ 
+Props to you for taking a level-headed approach to all of this, you're one of the very few people who didn't like the comic to do this (most others I've read are all "it's all awful, borba is terrible" etc etc).
+ 
+Good comic i must say and these seeing that takes a topic very difficult to approach with height of sights as is the theme of that Judy can have a baby and that she must sacrifice her work by have a baby that Nick wants that live and with these show that is possible to have a son in despite of being of different species, altough of course, the controversy of that Judy must choose between her son or her work isn't always pleasant and specially when you're first time father and all that you want is have a son that permit to enjoy of the joys that means to have a son and be a father for him, because the love that the parents give for your sons is a force difficult of break and that the pro-life and pro-choice positions tend to shock to the grade that become very extreme because i'm pro life, but i'm respect the difficult decision that Judy gives because she didn't want to have a baby in first place, but will must to burden the fact of have him and how she'll must work the double for that these son can to survive and know that he had a father that wasn't able to meet because Judy and Nick couldn't relax their postures and with these the two finished to take ways very different that is possible that never can get together again and maybe carry the weight that means to have a son that they didn't want to have and that maybe the son would finish carrying the stigma of being "born by accident"
+ 
+Good comic and congralutations to William Borba by take a complicated theme and that only the persons that 
